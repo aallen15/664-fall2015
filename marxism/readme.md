@@ -1,0 +1,1 @@
+One of our goals for this dicussion, in addition to covering the basic ideas of Marxism and Marxist historiography, is to think more about how this kind of analysis does or does not jive with approaches to history we've seen so far (as limited as they obviously are). We'll also talk more about Clark than we have in the past, so don't neglect our weekly snippet of that text.
