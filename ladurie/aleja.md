@@ -1,0 +1,7 @@
+>Le Roy Ladurie championed the climate as a new topic of research: "history without people," he joked. (Clark, 66) 
+
+I don’t think I have ever read a truer quote than that. Clark doesn’t spend a whole lot of time on Ladurie, rather she gives this big picture of this *new history* or this *method* history, seeming to try to encapsulate a very broad topic quickly, one that I was unaware of until Saturday morning. And while I will admit I have my issues with this way of doing history, I will try to be fair when digging for its benefits. 
+
+I will be honest and say that I understood only a small protein of this book. And when I say that I understood very little of this book, I mean that I know next to nothing of early modern France, I didn't know a county existed there called Languedoc, and I am not a farmer so many the different types of bread grain were from the most part lost on me. So when I started reading this book, I was at a loss was to what I was to glean from it. But then once I read Clark, I decided to put myself in the mindset of Bloch and try to see why a historian would try to do history/historiography in this confusing and very scientific way. So, for the remainder of the book, rather then try to understand early France from this very statistical view point, I thought of the entire book rather as a device to the historian to write a history. 
+
+#### The Micro in the Macro
